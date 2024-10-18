@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Damian-theDev
 - 👀 I’m interested in anime, mangas, videogames, music and AI
-- 🌱 I’m currently studing cs at high school, idk if i wanna go to university
+- 🌱 I’m currently studing cs at high school, I'll soon go to university
 - 💞️ I’m looking to collaborate on silly little projects, and i even want to get into AI
-- 😄 Pronouns: boss/master/daddy (he/him) 
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm acustic and italian
