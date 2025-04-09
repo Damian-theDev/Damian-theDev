@@ -3,4 +3,3 @@
 - 🌱 I’m currently studing cs at high school, I'll soon go to university
 - 💞️ I’m looking to collaborate on silly little projects, and i even want to get into AI
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i'm acustic and italian
